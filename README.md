@@ -1,1 +1,1 @@
-# 2022-MAMICM-Problem-A-Finalist
+# 2022-MCM-Problem-A-Finalist
